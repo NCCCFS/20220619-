@@ -1,1 +1,19 @@
-
+#20220619尼哥底母的重生
+<audio controls src="./尼哥底母的重生_C32kbps.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/174496241-94a7c1b6-7147-46ed-85b2-0f4208f75b97.png)
+![image](https://user-images.githubusercontent.com/91267933/174496242-d07603f0-4df1-4316-b407-f2f57ba9f6ae.png)
+![image](https://user-images.githubusercontent.com/91267933/174496248-71e0fc9a-3486-4198-bc55-18227798b875.png)
+![image](https://user-images.githubusercontent.com/91267933/174496253-2694b393-f0a6-4f98-8a86-408e6a6cf266.png)
+![image](https://user-images.githubusercontent.com/91267933/174496255-7f5ee28a-5f99-466c-b76f-b00b0fad4cfb.png)
+![image](https://user-images.githubusercontent.com/91267933/174496259-c9cfbc65-50d5-410d-b2b6-9d3817f2ea9d.png)
+![image](https://user-images.githubusercontent.com/91267933/174496263-cbdbca79-cb47-4f8b-bd57-34e171fd700d.png)
+![image](https://user-images.githubusercontent.com/91267933/174496268-7a01c6ce-e999-4400-a58f-f927680cc6cf.png)
+![image](https://user-images.githubusercontent.com/91267933/174496271-965b328e-876f-443c-ae80-69fcf6776e5a.png)
+![image](https://user-images.githubusercontent.com/91267933/174496290-e7c1f37e-0dd4-4a82-94b6-2fe7ba27b835.png)
+![image](https://user-images.githubusercontent.com/91267933/174496289-35eba565-03ba-4c45-ad51-95089eec116c.png)
+![image](https://user-images.githubusercontent.com/91267933/174496288-bc2d2139-9ad1-4c9b-b237-ac2e092bde45.png)
+![image](https://user-images.githubusercontent.com/91267933/174496287-ef5ef342-4b4b-43cd-bfad-3c3ddaa9b0c4.png)
+![image](https://user-images.githubusercontent.com/91267933/174496294-77debedd-5e8b-41d1-9667-dfd91a12e210.png)
+![image](https://user-images.githubusercontent.com/91267933/174496300-3e234ba2-b3e0-4246-aa96-f26a2478efe4.png)
+![image](https://user-images.githubusercontent.com/91267933/174496306-752d0314-4d29-4581-80d9-cf67c61f51ef.png)
+![image](https://user-images.githubusercontent.com/91267933/174496310-9362ed0c-f692-48f9-bab3-dba814011463.png)
